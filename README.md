@@ -1,1 +1,0 @@
-# burapol.github.io
